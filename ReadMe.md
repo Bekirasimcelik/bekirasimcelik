@@ -10,7 +10,7 @@
 
 📫 How can you reach me bekirasimcelik@gmail.com
 
-🎯 website address www.bekirasimcelik.com
+🎯 Website address www.bekirasimcelik.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
