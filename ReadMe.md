@@ -8,7 +8,7 @@
 
 🤭 I am open and willing to learn new things.
 
-📫 How can you reach me bekirasimcelik@gmail.com
+📫 How can you reach me bekirasimcelik@gmail.com.
 
 🎯 Website address www.bekirasimcelik.com
 
