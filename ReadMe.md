@@ -6,7 +6,7 @@
 
 💬 Ask me about React, React Native, Javascript, Python.
 
-🤭 I am open and willing to learn new things.
+🤭 I am open and willing to learn new things
 
 📫 How can you reach me bekirasimcelik@gmail.com
 
